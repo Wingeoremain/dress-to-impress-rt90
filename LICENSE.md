@@ -1,4 +1,4 @@
-#  
+#  No-Ban plants vs brainrots script is the best plants vs brainrots script with private server access and invisibility. Safe, reliable, and optimized for maximum performance.
 
 
 
